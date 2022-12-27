@@ -4,6 +4,6 @@
 
 #### [nepalikhata.com](https://www.nepalikhata.com/)
 
-![gif](https://user-images.githubusercontent.com/121178385/209117689-a43cb6c2-3718-41c7-8909-b410cb1a8ecd.gif)
+![cooking](https://user-images.githubusercontent.com/121178385/209611858-4d5a0296-09f6-4aff-b2d7-7ac06a8af598.gif)
 
 </div>
